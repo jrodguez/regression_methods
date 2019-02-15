@@ -1,4 +1,4 @@
-## Homework 4 is due Thurs Feb 21 @ 11:59
+## Homework 4 is due Thurs Feb 28 @ 11:59
 
 
 ### Description and purpose
